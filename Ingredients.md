@@ -1,3 +1,4 @@
+#Ingridents
 **For Fried Veg Manchurian Balls**
 *▢½ cup grated or finely chopped cabbage (green or red cabbage)
 *▢½ cup grated carrot
@@ -9,7 +10,7 @@
 *▢½ teaspoon black pepper powder
 *▢½ teaspoon salt or add as required
 *▢oil for shallow frying or deep frying
-**For Veg Manchurian Sauce*
+**For Veg Manchurian Sauce**
 *▢½ tablespoon finely chopped garlic
 *▢½ tablespoon finely chopped ginger
 *▢1 or 2 green chilies – finely chopped
