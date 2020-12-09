@@ -1,59 +1,50 @@
 # Recipe
-* Step-by-step
-For ease of understanding, I have divided this post in 3 main parts:
+* **Step-by-step**
+*For ease of understanding, I have divided this post in 3 main parts:
 
-Step 1 – Preparing the veggie balls
-Step 2 – Frying veggie balls
-Step 3 – Making veg manchurian dry
-Lets start with step 1 – Preparing the Veggie Balls
+* Step 1 – Preparing the veggie balls
+* Step 2 – Frying veggie balls
+* Step 3 – Making veg manchurian dry
+* **Lets start with step 1 – Preparing the Veggie Balls**
 
 1. Take the finely chopped or grated veggies in a bowl. Here I added ½ cup finely chopped red cabbage, ½ cup grated carrot, ¼ cup finely chopped capsicum (green bell pepper), ¼ cup finely chopped french beans, ¼ cup finely chopped spring onions (scallions).
 
 veggies for dry veg manchurian recipe
 2. Add the dry ingredients – 2 tablespoons corn starch, 2 tablespoons all purpose flour, ½ teaspoon black pepper and ½ teaspoon salt or add as required.
 
-ingredients for dry veg manchurian recipe
+* **ingredients for dry veg manchurian recipe**
 
-
-Mediavine
 3. Gather the whole mixture and kind of mix and knead so that the veggies leave the water and you get a dough like mixture.
 
-making dough for dry veg manchurian recipe
+* **making dough for dry veg manchurian recipe**
 4. Take a small portion of the mixture in your hands.
 
-mixture for veg manchurian balls
+* **mixture for veg manchurian balls**
 
-
-Mediavine
 5. Press and roll it in your palm.
 
-making veg manchurian balls
+* **making veg manchurian balls**
+
 6. And make a round veggie ball.
 
-making veg manchurian balls
+* **making veg manchurian balls**
 
-
-Mediavine
 7. Make all veggie balls this way and keep aside.
 
-veg manchurian balls
+* **veg manchurian balls**
 Step 2 – Frying Veggie Balls
 
 8. Heat oil for deep frying in a kadai or pan. Add a small piece of ball to the hot oil. If the balls does not stick or settle down at the bottom of the pan, but comes up steadily the oil is ready for frying these veg manchurian balls.
 
-frying veg manchurian balls
+* **frying veg manchurian balls**
 
-
-Mediavine
 9. Gently place the balls in the hot oil. The oil has to be medium hot. Too much heat and the manchurian balls will be browned from top and uncooked from inside. Less hot oil will make the balls absorb too much of oil.
 
-frying veg manchurian balls
+* **frying veg manchurian balls**
 10. When cooked from one side, turn the balls with a slotted spoon.
 
 frying veg manchurian balls
 
-
-Mediavine
 11. Fry the balls till crisp and golden.
 
 frying vegetable manchurian balls
